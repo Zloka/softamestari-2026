@@ -1,0 +1,1 @@
+# softamestari-2026
